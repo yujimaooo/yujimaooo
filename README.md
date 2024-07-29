@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: jaslikethat.work@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm also 1️⃣ digital influencer 🧋🍕 hit me up if you are also a food enthusiast 2️⃣ model 📸 I do mostly still ones 3️⃣ yoga teacher 🧘🏻‍♀️ book me for a vinyasa, yoga nidra, or inside flow session 
+- ⚡ Fun fact: I'm also a digital influencer, model and yoga teacher 🧘🏻‍♀️📸🧋🍕 hit me up if you are also a food enthusiast or you are interested in book me for a vinyasa, yoga nidra, or inside flow session
 
 <!---
 yujimaooo/yujimaooo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
